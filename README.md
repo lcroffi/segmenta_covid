@@ -1,0 +1,1 @@
+# segmenta_covid
